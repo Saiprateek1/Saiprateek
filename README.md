@@ -1,2 +1,0 @@
-# Saiprateek
-Saiprateek's Portfolio
